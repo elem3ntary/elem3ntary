@@ -6,7 +6,7 @@ im a shkololo
 
 why am i even on applied science faculty 
 
-/*/* *🚨 cringe alert** /*/*
+🚨**cringe alert**
 <!--
 **elem3ntary/elem3ntary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
