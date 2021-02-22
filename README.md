@@ -1,5 +1,6 @@
-Look on your code and then mine, your is worse
+Look on your code and then on mine, your is worse
 
+im a coder 228
 <!--
 **elem3ntary/elem3ntary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
