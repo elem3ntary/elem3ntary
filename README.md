@@ -1,6 +1,7 @@
 Look on your code and then on mine, your is worse
 
-im a coder 228
+im a shkololo
+(programing sucks and so do you)
 <!--
 **elem3ntary/elem3ntary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
