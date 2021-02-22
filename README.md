@@ -1,7 +1,8 @@
-### Hi there 👋
+Look on your code and then mine, your is worse
 
 <!--
 **elem3ntary/elem3ntary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 Here are some ideas to get you started:
 
