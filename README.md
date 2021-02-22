@@ -1,7 +1,10 @@
 Look on your code and then on mine, your is worse
 
 im a shkololo
-(programing sucks and so do you)
+
+(programing sucks and so you do)
+
+why am i even on applied science faculty 
 <!--
 **elem3ntary/elem3ntary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
