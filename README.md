@@ -1,5 +1,3 @@
-Look on your code and then on mine, your is worse
-
 im a shkololo
 
 why am i even on applied science faculty 
