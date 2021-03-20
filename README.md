@@ -1,5 +1,3 @@
-im a shkololo
-
 why am i even on applied science faculty 
 
 🚨**cringe alert**
