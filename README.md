@@ -1,6 +1,8 @@
-why am i even on applied science faculty 
+2+2=4 
+4-1=3
+Quick math
 
-🚨**cringe alert**
+🚨🚨🚨🚨🚨🚨🚨
 <!--
 **elem3ntary/elem3ntary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
