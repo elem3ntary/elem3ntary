@@ -1,6 +1,5 @@
 
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=elem3ntary&label=Profile%20views&color=0e75b6&style=flat" alt="elem3ntary" /> </p>
 
 <img src="https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif"/>
 
